@@ -1,0 +1,1 @@
+1 cupflour,3/4 cup sugar,1/2 cup curd,1/2 cup butter/malai,1 tsp baking powder,1/4 tsp soda-bi-carbonate,4-5 tbsp milk,3tbsp coco powder.
